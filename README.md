@@ -1,5 +1,5 @@
 # 💫 About Me:
-¡Hola! Soy Mica<br><br>Estudiante de la Tec. Universitaria en Programación UTN
+¡Hola! Soy Mica, Estudiante de la Tec. Universitaria en Programación UTN
 
 
 ## 🌐 Socials:
